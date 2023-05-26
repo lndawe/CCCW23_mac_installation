@@ -1,1 +1,0 @@
-# CCCW23_mac_installation
